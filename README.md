@@ -1,6 +1,8 @@
 # Day 1 - Friday, June 2, 2023
 Welcome to my website. In case you are interested in "NoFap" and want to understand what it means, a good resource is this: https://nofap.com/porn-addiction/
+
 I have been fighting against my porn and masturbation addiction for at least 13 years now. In total, I have attempted to leave this addiction more often than I can count.
+
 I have also had successes: Had phases of approx. 40 days where I was completely free of the addiction. But up until now, I have not been able to free myself entirely.
 
 The fight has had many phases: I was fighting it all by myself for a long time, then I later discovered the App Fortify (https://www.joinfortify.com) which I then used for a few years. That was a big help. In parallel, or also afterwards, I realised that there is an active subreddit (https://www.reddit.com/r/NoFap/). I have been on this subreddit for multiple years, under three different usernames. Right now I am not active on any of those.
