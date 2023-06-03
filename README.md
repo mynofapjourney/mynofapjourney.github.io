@@ -22,3 +22,10 @@ Here is a template to keep track of 90 days (just colour one field every day): h
 Here my contact info: mynofapjourney@proton.me
 
 Take care, world. All the best, and don't blow yourself up while I am away.
+
+# Day 2 - Saturday, June 3, 2023
+Today I am going on a trip for a few days together with my partner. I survived last night without a failiure. Usually, for me, the night and the early morning are the most dangerous times where I tend to fail.
+
+I hope we have sex during our trip. But I also think it is quite unlikely. We might try once or twice, but will it be good? Will it be bad and disappointing?
+
+Until tomorrow, folks!
