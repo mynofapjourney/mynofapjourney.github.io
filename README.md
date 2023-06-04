@@ -29,3 +29,6 @@ Today I am going on a trip for a few days together with my partner. I survived l
 I hope we have sex during our trip. But I also think it is quite unlikely. We might try once or twice, but will it be good? Will it be bad and disappointing?
 
 Until tomorrow, folks!
+
+# Day 3 - Sunday, June 4, 2023
+I am still on my holiday, until tomorrow evening.
