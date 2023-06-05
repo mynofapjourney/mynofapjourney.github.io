@@ -39,3 +39,8 @@ The holiday was very relaxing until now. We spent a lot of time in nature. Sadly
 If I observe the sexual fantasies which ran through my mind now and then while outside yesterday, I realise that I have a tendency towards sadistic thoughts and imaginations.
 
 Oh and I also want to mention that I created a new reddit account: I am u/mynofapjourney2023. You can get in contact with me via reddit if you like.
+
+I found a good reddit post on r/NoFap, which should be interesting for anybody interested in what NoFap is all about. It is a few pages from a book from the year 1948: 
+
+https://www.reddit.com/r/NoFap/comments/140fcfb/found_a_1948_book_on_sex_education_heres_what_it/
+
