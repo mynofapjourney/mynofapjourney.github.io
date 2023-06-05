@@ -36,4 +36,6 @@ I am still on my holiday, until tomorrow evening.
 # Day 4 - Monday, June 5, 2023
 The holiday was very relaxing until now. We spent a lot of time in nature. Sadly, we didn't have any sex.
 
-If I observe the fantasies which ran through my mind now and then while outside yesterday, I realise that I have a tendency towards sadistic thoughts and imaginations.
+If I observe the sexual fantasies which ran through my mind now and then while outside yesterday, I realise that I have a tendency towards sadistic thoughts and imaginations.
+
+Oh and I also want to mention that I created a new reddit account: I am u/mynofapjourney2023. You can get in contact with me via reddit if you like.
