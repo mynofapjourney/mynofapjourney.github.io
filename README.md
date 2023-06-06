@@ -44,3 +44,15 @@ I found a good reddit post on r/NoFap, which should be interesting for anybody i
 
 https://www.reddit.com/r/NoFap/comments/140fcfb/found_a_1948_book_on_sex_education_heres_what_it/
 
+# Day 5 - Tuesday, June 6, 2023
+We are back home from our short holiday. I have got one day of leave today. Very nice holiday, nice time in nature, calm time, but no sex at all.
+
+Today in the afternoon I have an appointment which will be very challenging. I am somewhat scared of it. I am anxious and nervous. I will have to talk about things which are difficult for me to talk about. It cannot be postponed.
+
+I am also not so relaxed because there are so many things which need to be done at home, but I don't feel up to any of it.
+
+Me and my partner sleep separately. This is mainly because the bed is too uncomfortable for two people. But this will also have to change.
+
+Today while waking up I was having a lot of sexual thoughts. It is usually in the morning hours that I have a lot of sexual thoughts, when the last days have been without an orgasm. Sadly, my partner is sleepy and definitely not ready for or interested in sex in the morning hours.
+
+I hope I survive this day today in every way. Tomorrow morning I will be at my workplace.
