@@ -56,3 +56,18 @@ Me and my partner sleep separately. This is mainly because the bed is too uncomf
 Today while waking up I was having a lot of sexual thoughts. It is usually in the morning hours that I have a lot of sexual thoughts, when the last days have been without an orgasm. Sadly, my partner is sleepy and definitely not ready for or interested in sex in the morning hours.
 
 I hope I survive this day today in every way. Tomorrow morning I will be at my workplace.
+
+# Day 6 - Wednesday, June 7, 2023
+Hello to all people following this blog. I am writing to you from my workplace.
+
+I survived the challenging talk yesterday. It will take time until the things I want to talk about can actually be addressed. But yesterday was a start. 🙂
+
+Yesterday night I almost failed. I was, as usual, having my fantasies in the night, lying alone in my bed. My partner had not shown any interest in sex. I was getting quite aroused with my fantasies, but then stopped before it was too late. Took a break, wore a pyjama, turned around in bed, and did not fail. Slept off quite soon after that.
+
+I have started reading a new book. This is good, because reading is a good alternative to spending meaningless time online, which could in turn lead to searching for sexual content on porn sites or somewhere else.
+
+Yesterday, I also spent time clearing up home. There is still a lot to do there, but I also got a lot done towards the goal of making home feel homely again.
+
+On June 12, I have a 10 km race which I am going to participate in. I need to train for this. Maybe today evening I should go to the gym.
+
+Ok, time to try and get some work done.
