@@ -19,6 +19,10 @@ And although I will be strict about it, I will not be super paranoid. If I accid
 
 Here is a template to keep track of 90 days (just colour one field every day): https://mynofapjourney.github.io/90day-template.JPG
 
+EDIT: To give credit where it is due: The picture originates from this reddit post: 
+
+https://www.reddit.com/r/NoFap/comments/lrg2uw/90_day_progress_map/
+
 Here my contact info: mynofapjourney@proton.me
 
 Take care, world. All the best, and don't blow yourself up while I am away.
