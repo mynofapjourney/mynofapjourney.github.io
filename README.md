@@ -75,3 +75,16 @@ Yesterday, I also spent time clearing up home. There is still a lot to do there,
 On June 12, I have a 10 km race which I am going to participate in. I need to train for this. Maybe today evening I should go to the gym.
 
 Ok, time to try and get some work done.
+
+# Day 7 - Thursday, June 8, 2023
+In about two hours, I would have completed a full week without fapping or orgasming in any other way, watching porn, or having sex.
+
+Yesterday night I watched a video which motivated me for today. It is by a youtube channel called "After Skool" and I do not like all of their content. But this video is worth sharing: https://www.youtube.com/watch?v=Ma4VZ7rxGOw
+
+Today in the morning I went to the gym. I am preparing for a race which will be in four days: 10 kilometres. Later, even went swimming. So all in all, a very active day. Didn't eat too much but also not too less.
+
+Spent most of the rest of the evening watching the live performances of the eurovision song contest 2023 finals. It is on youtube.
+
+Now I am feeling sleepy, and I really am thinking of how important it is to develop personality, and also, what is my personality, anyway? I am confused about my goals in life.
+
+Take care, all who read this. Have a great day.
