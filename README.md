@@ -88,3 +88,11 @@ Spent most of the rest of the evening watching the live performances of the euro
 Now I am feeling sleepy, and I really am thinking of how important it is to develop personality, and also, what is my personality, anyway? I am confused about my goals in life.
 
 Take care, all who read this. Have a great day.
+
+# Day 8 - Friday, June 9, 2023
+Hello world. Back at work today. It would be sufficient to put in just a few hours today. Let me see how motivated I am.
+
+Tomorrow I am helping out as a waiter in a party. That might be fun - let's see.
+
+My legs are tired after all the sports yesterday. Need to take it easy today.
+
