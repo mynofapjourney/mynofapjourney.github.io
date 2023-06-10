@@ -96,3 +96,11 @@ Tomorrow I am helping out as a waiter in a party. That might be fun - let's see.
 
 My legs are tired after all the sports yesterday. Need to take it easy today.
 
+# Day 9 - Saturday, June 10, 2023
+The evening and night was super tough. Nofap is now becoming a load: I feel as if I am denying myself a very basic need. I am quite frustrated that my partner and me aren't engaging in sex at all.
+
+It is summer and women who feel comfortable with their body are showing it off in short clothing and nice dresses. I am enjoying seeing this.
+
+The party is today afternoon. My job as waiter is yet to begin.
+
+Time to get out of bed now. Until tomorrow!
