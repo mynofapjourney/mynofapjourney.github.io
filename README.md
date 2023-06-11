@@ -104,3 +104,12 @@ It is summer and women who feel comfortable with their body are showing it off i
 The party is today afternoon. My job as waiter is yet to begin.
 
 Time to get out of bed now. Until tomorrow!
+
+# Day 10 - Sunday, June 11, 2023
+Good morning. It is normal morning time. I have sleps 4 hours maximum, but now for me sleep is over.
+
+Was at a party yesterday, working as a barman. It was real fun.
+
+Today afternoon visiting some relatives of my partner.
+
+I wonder how many more days will pass without sex. *sigh*
