@@ -113,3 +113,14 @@ Was at a party yesterday, working as a barman. It was real fun.
 Today afternoon visiting some relatives of my partner.
 
 I wonder how many more days will pass without sex. *sigh*
+
+# Day 11 - Monday, June 12, 2023
+I am so glad to still be here, going on with my NoFap journey. I was alone at home yesterday evening and night, and it was a tough situation. After not being able to resist, started reading a porn book (only text, no pictures). Luckily stopped at some point. By now I have deleted the book entirely from my computer. Then I had to be strict with myself. I need to first and foremost learn self-control, and be able to discipline myself. This means being able to forbid myself from doing certain things, punishing myself when I start going in a wrong direction, and so on.
+
+That is what I did yesterday evening, that is what I need to do so that I reach my 90 day goal.
+
+Looking at my countdown clock is so satisfying, because there are less than 80 days remaining now. By the way, here it is: https://countingdownto.com/?c=4791824
+
+And also by the way: Still no sex. *sigh*
+
+Today evening is the 10 kilometre race. I hope that goes well ...
