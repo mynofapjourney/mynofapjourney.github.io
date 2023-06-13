@@ -124,3 +124,13 @@ Looking at my countdown clock is so satisfying, because there are less than 80 d
 And also by the way: Still no sex. *sigh*
 
 Today evening is the 10 kilometre race. I hope that goes well ...
+
+# Day 12 - Tuesday, June 13, 2023
+I made a mistake yesterday with the date of the race. It is actually tomorrow evening. Luckily, I realized in time.
+
+Today morning I nicely cuddled with my partner, and with gentle advances I checked if she is interested in sex. She wasn't. - *sigh* - It was also no misunderstanding, later we explicitly talked about it and she says that in the morning it is "too early" for her. Hm.
+
+If she remains the same way until day 20, I may have to start getting more active and enforce her participation, whether she enjoys it or not. I don't mean that I'll force her, but I will make her oblige me.
+
+Another working day is now ahead of me.
+
