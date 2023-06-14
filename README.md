@@ -134,3 +134,9 @@ If she remains the same way until day 20, I may have to start getting more activ
 
 Another working day is now ahead of me.
 
+# Day 13 - Wednesday, June 14, 2023
+I am feeling quite disoriented. Not feeling too good today.
+
+My countdown says 77 days, 15 hours.
+
+Today evening is the 10 km race.
