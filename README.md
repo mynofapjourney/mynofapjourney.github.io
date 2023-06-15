@@ -140,3 +140,10 @@ I am feeling quite disoriented. Not feeling too good today.
 My countdown says 77 days, 15 hours.
 
 Today evening is the 10 km race.
+
+# Day 14 - Thursday, June 15, 2023
+I went for the race, and after completing 9500 m of the 10 km, tripped and fell, had an accident where no bones broke but I needed stitches.
+
+Tomorrow morning I will go to the doctor. Recovery will take a few weeks, I guess, probably 3 or 4 weeks.
+
+I wonder how this will impact my nofap journey. Positively, or negatively? No idea, let us see.
