@@ -147,3 +147,12 @@ I went for the race, and after completing 9500 m of the 10 km, tripped and fell,
 Tomorrow morning I will go to the doctor. Recovery will take a few weeks, I guess, probably 3 or 4 weeks.
 
 I wonder how this will impact my nofap journey. Positively, or negatively? No idea, let us see.
+
+# Day 15 - Friday, June 16, 2023
+I feel quite fit despite the stitches. I am on antibiotics and a low dose of painkillers. Since about today late morning, I can walk without any crutch / walking stick, but only slowly. I am making sure to have proper meal times due to the medicines.
+
+At the moment my body is asking for sleep. I might watch one youtube video and then go and sleep for a few hours.
+
+I am now and then thinking of the erotic story book which I downloaded four days ago. I am sometimes tempted to download it again, but up until now, I have been resisting this temptation.
+
+Ok, until tomorrow then.
