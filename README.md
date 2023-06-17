@@ -156,3 +156,6 @@ At the moment my body is asking for sleep. I might watch one youtube video and t
 I am now and then thinking of the erotic story book which I downloaded four days ago. I am sometimes tempted to download it again, but up until now, I have been resisting this temptation.
 
 Ok, until tomorrow then.
+
+# Day 16 - Saturday, June 17, 2023
+I am highly annoyed. I am also disappointed with myself. I have spent hours and hours reading the erotic story book. Just five minutes ago, I deleted it again from my phone and resolved to not download it again until 90 days are up. By that time, hopefully, I will not want to do it again.
