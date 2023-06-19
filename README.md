@@ -160,6 +160,6 @@ Ok, until tomorrow then.
 # Day 16 - Saturday, June 17, 2023
 I am highly annoyed. I am also disappointed with myself. I have spent hours and hours reading the erotic story book. Just five minutes ago, I deleted it again from my phone and resolved to not download it again until 90 days are up. By that time, hopefully, I will not want to do it again.
 
-# Day 18 - Monday, June 18, 2023
+# Day 18 - Monday, June 19, 2023
 Good morning. I realize that I completely forgot to write a post yesterday. No news, anyhow. Have been concentrating on recovering. I am on my way to the doctor who will take a look at the stitches and see how it has healed. Will write the next paragraph when I have seen the doctor.
 
