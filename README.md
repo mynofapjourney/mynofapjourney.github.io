@@ -163,3 +163,11 @@ I am highly annoyed. I am also disappointed with myself. I have spent hours and 
 # Day 18 - Monday, June 19, 2023
 Good morning. I realize that I completely forgot to write a post yesterday. No news, anyhow. Have been concentrating on recovering. I am on my way to the doctor who will take a look at the stitches and see how it has healed. Will write the next paragraph when I have seen the doctor.
 
+# Day 19 - Tuesday, June 20, 2023
+I am shortly before the 20-day mark. And I am really glad about the development that I am not thinking about the concept "NoFap" so consciously anymore. This shows in that I forgot to post on Day 17, and forgot the second paragraph yesterday.
+
+Tomorrow I have to again go for a checkup to the doctor.
+
+Today morning and in the night I almost started masturbating, but could check myself.
+
+I have still not had any sex with my partner since Day 1. I wonder how long until we next copulate. 
