@@ -171,3 +171,10 @@ Tomorrow I have to again go for a checkup to the doctor.
 Today morning and in the night I almost started masturbating, but could check myself.
 
 I have still not had any sex with my partner since Day 1. I wonder how long until we next copulate. 
+
+# Day 22 - Friday, June 23, 2023
+Ok, so it is happening. What am I talking about? I am talking about what happens in my life every time I am having a long(ish) streak. Right now, I have completed three weeks. Yaay! And what is it that happens then? Let me tell you.
+
+The "status quo" gets disturbed. I start behaving more aggressively and being less apologetic about it. Especially towards people close to me, which at the moment means my partner. So since yesterday, we are in a non-verbal fight with each other, interacting as less as possible.
+
+Let me give you an overview of the coming week. Right now, my parents are visiting me. In the next few days, we will be spending time with friends. Then on Sunday night I will leave for a business trip, coming back home on Saturday morning. By that time, if I continue NoFap without any failiure, I would have completed four weeks.
